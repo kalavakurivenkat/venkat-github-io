@@ -1,2 +1,2 @@
-# venkat-github-io
+# venkat.github.io
 kalavakurivenky
